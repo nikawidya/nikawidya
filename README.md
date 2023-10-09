@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nikawidya
+- 👀 I’m interested in Oil and Gas Industry
+- 🌱 I’m currently learning Data Analyst
